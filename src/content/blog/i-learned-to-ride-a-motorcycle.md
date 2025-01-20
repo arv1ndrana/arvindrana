@@ -8,6 +8,7 @@ tags:
   - life
 description: I finally learned how to ride a bike!!
 ---
+
 So, Last Friday (i.e Paush 26th), I learned how to ride a bike. I got taught by my brothers (both elder as well as the young one). I am very grateful that I have such relatives when it comes to helping a person in need. I am really appreciative of them.
 
 But, that said, I nearly died the first time starting the bike. My younger brother was teaching me how to start the bike without giving full instructions on how to stop it. So, i did as he told me to (not alone but, him sitting behind me) and I really underestimated him when he was saying that the accelerator (the rolling thingy on right hand) should be gently rolled. I rolled it so hard that I did a wheely with my brother sitting behind me for about 5 seconds, the front wheels were touching about my head height for fully 3-4 seconds. I was SO scared of that experience that I started to shake after the fall of the motorcycle. I was actively trying to stop the motorcycle by turning the key from a fallen motorcycle, since, My brother fell the second I started the motorcycle as he was sitting in the back and we did a full on wheely on a motorbike. My aunty saw my shenanigans and was very frightened for my and her son's safety.
