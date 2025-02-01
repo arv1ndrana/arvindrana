@@ -1,6 +1,6 @@
 ---
 title: I cut my ear
-pubDatetime: 2025-01-20T22:22:00
+pubDatetime: 2025-01-20T1:00:00Z
 featured: true
 draft: false
 tags:
